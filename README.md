@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @KarlaRmz02
+- 👀 I’m interested in aprender cosas y la tecnologia, para poder desarrolar mejores trabajos de mi escuela 
